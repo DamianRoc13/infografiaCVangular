@@ -1,0 +1,1 @@
+https://www.figma.com/board/OR3Hb6lF5fmZiJyJGuiQaA/Infograf%C3%ADaCVangular?node-id=0%3A1&t=vQJQkfB0PPx3IGG4-1 
